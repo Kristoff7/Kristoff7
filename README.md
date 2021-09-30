@@ -2,7 +2,7 @@
 ### ***About Kristoff7...***
 ---
 
-### **Salutations! I am Kristoff Castiano - or Kristoff for short. I'm an aspiring website developer 💻, history enthusiast ⚔️, and music devotee 🎵.**
+### ***Salutations! I am Kristoff Castiano - or Kristoff for short. I'm an aspiring website developer 💻, history enthusiast ⚔️, and music devotee 🎵.***
 ---
 
 ### ***Some Things About Me:***
